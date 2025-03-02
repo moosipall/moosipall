@@ -1,5 +1,3 @@
-c+h ok:)
-
 🟢: online
 
 🌙: online but playing another game, offtab
