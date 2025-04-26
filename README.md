@@ -2,7 +2,7 @@
 
 🟢: online
 
-🌙: online but playing another game, offtab 
+🌙: offtab 
 
 ⛔: afk 
 
