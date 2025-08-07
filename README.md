@@ -3,8 +3,4 @@
 
 ![](https://komarev.com/ghpvc/?username=moosipall&color=green)
 
-🟢: online
-
-🌙: offtab 
-
-⛔: afk 
+🟢: online 🌙: offtab  ⛔: afk 
