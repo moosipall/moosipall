@@ -4,3 +4,10 @@
 ![](https://komarev.com/ghpvc/?username=moosipall&color=449e6b)
 
 🟢: online 🌙: offtab  ⛔: afk 
+
+
+usually above docks
+
+feel free to copy/take inspo from my skins
+
+draco malfoy skin count as of august: 190
