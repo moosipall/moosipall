@@ -11,7 +11,4 @@ feel free to copy/take inspo from my skins
 
 draco malfoy skin count as of august: 190
 
-![ezgif-36e1d4ee952e9f](https://github.com/user-attachments/assets/30d7a481-2e34-47d7-86d5-34480817a914)
-![ezgif-76512f27e18497](https://github.com/user-attachments/assets/a2ef1569-2451-4f24-bb26-1bcf2fff4155)
-
 ![ezgif-8396928a2e1147](https://github.com/user-attachments/assets/7a1e6bb6-9dc3-4a30-b5e0-5ba1f9488b4a)
