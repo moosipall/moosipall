@@ -33,9 +33,9 @@ PHOTODUMP!!!!!!!!!!!!!!!!!
 <img width="580" height="296" alt="image" src="https://github.com/user-attachments/assets/e34773e7-ddfb-407c-918d-ba5acb9dd188" />
 <img width="410" height="198" alt="image" src="https://github.com/user-attachments/assets/7880c0b9-a420-48ad-8c5e-811b2a2f1d1e" />
 <img width="400" height="199" alt="image" src="https://github.com/user-attachments/assets/8e68452d-e16a-4f29-a418-80e67b82d961" />
-<img width="611" height="392" alt="image" src="https://github.com/user-attachments/assets/11bf0799-939d-4ec3-b7d9-aa91fff145dc" />
-<img width="351" height="384" alt="image" src="https://github.com/user-attachments/assets/d21bc328-65d1-4a46-a95c-113b45c40944" />
-<img width="563" height="476" alt="image" src="https://github.com/user-attachments/assets/b808a04c-2683-458d-83af-7b295ba67cdc" />
+<img width="345" height="287" alt="image" src="https://github.com/user-attachments/assets/63e455a7-0909-441b-b5a5-503f6675291e" />
+<img width="371" height="244" alt="image" src="https://github.com/user-attachments/assets/fa6a89de-34fe-4f9a-a808-f28e987126fb" />
+<img width="205" height="221" alt="image" src="https://github.com/user-attachments/assets/1c93f268-bcb2-4883-b226-a54edb1c95c1" />
 <img width="329" height="273" alt="image" src="https://github.com/user-attachments/assets/b646a410-142d-4220-93a2-03db7a813660" />
 
 
