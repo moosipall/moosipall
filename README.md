@@ -1,11 +1,9 @@
-![ezgif-8396928a2e1147](https://github.com/user-attachments/assets/7a1e6bb6-9dc3-4a30-b5e0-5ba1f9488b4a)
-
-![](https://komarev.com/ghpvc/?username=moosipall&color=449e6b)
+![](https://komarev.com/ghpvc/?username=moosipall&color=293b23)
 
 🟢: online 🌙: offtab  ⛔: afk 
 
 
-usually above docks
+usually above docks 
 
 feel free to copy/take inspo from my skins
 
