@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=moosipall&color=517d44)
 
+[photo dump](https://sectumsempra.straw.page/)
+
 🟢: online 🌙: offtab  ⛔: afk 
 
 
