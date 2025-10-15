@@ -5,7 +5,6 @@
 🟢: online 🌙: offtab  ⛔: afk 
 
 
-either above docks or with friends
 
 feel free to copy/take inspo from my skins
 
