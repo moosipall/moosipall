@@ -2,7 +2,7 @@
 
 🟢online 🌙offtab  ⛔afk 
 
-feel free to copy/take inspo from my skins // always logged in unless i'm not feeling good
+feel free to copy/take inspo from my skins
 
 <img width="201" height="99" alt="Screenshot_5" src="https://github.com/user-attachments/assets/579b5c2b-cb3b-4b4b-b6a4-0acc8d3a5906" />
 
