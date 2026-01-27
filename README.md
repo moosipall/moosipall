@@ -4,6 +4,8 @@
 
 feel free to copy/take inspo from my skins
 
+mostly mute, only talkative with friends
+
 <img width="201" height="99" alt="Screenshot_5" src="https://github.com/user-attachments/assets/579b5c2b-cb3b-4b4b-b6a4-0acc8d3a5906" />
 
 
