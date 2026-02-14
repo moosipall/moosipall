@@ -4,7 +4,7 @@
 
 my current interests are hp, aftg and atla
 
-its okay to sit by me even if my name has dniuid/dniuf/etc . im very anxious so im often quiet 
+its okay to sit with me even if my name has dniuid/dniuf/etc . im very anxious so im often quiet 
 
 feel free to copy/take inspo from my skins
 
