@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=moosipall&color=064b2a)
 
-🟢online 🌙offtab  ⛔afk 
+🟢online 🌙offtab  ⛔afk/asleep
 
 my current interests are hp, aftg and atla
 
