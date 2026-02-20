@@ -12,7 +12,7 @@ feel free to copy/take inspo from my skins
 
 
 [photo dump](https://sectumsempra.straw.page/) //
-[atabook](https://malfoy.atabook.org/)
+[atabook](https://minyard.atabook.org/)
 
 
 
