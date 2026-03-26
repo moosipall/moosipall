@@ -2,7 +2,7 @@
 
 🟢online 🌙offtab  ⛔afk/asleep
 
-my current main interests are all for the game and harry potter🧡
+my current main interests are all for the game and harry potter🧡 [+more](https://colourmeinkindness.carrd.co/)
 
 its okay to sit with me even if my name has dniuid/dniuf/etc . im very anxious so im often quiet but ill warm up quickly if we have mutual interests ^^
 
