@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=moosipall&color=fb9200)
+![](https://komarev.com/ghpvc/?username=moosipall&color=a9782b)
 
 🟢online 🌙offtab  ⛔afk/asleep
 
