@@ -2,7 +2,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=moosipall&color=a9782b)
+![](https://komarev.com/ghpvc/?username=moosipall&color=a4c84b)
 
 🟢online 🌙offtab  ⛔afk/asleep
 
