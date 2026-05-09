@@ -6,6 +6,6 @@
 
 🟢online 🌙offtab  ⛔afk/asleep
 
-my current main interests are all for the game and villains (triology)❤️ [+more](https://colourmeinkindness.carrd.co/)
+my current main interests are all for the game and villains (triology)❤️ 
 
-sign my [ata](https://malfoy.atabook.org/)book >_< draco [hoard](https://github.com/maIfoy) 
+sign my [ata](https://malfoy.atabook.org/)book >_< draco [hoard](https://github.com/maIfoy) O_O [rentry](https://rentry.co/whatdatmean)
