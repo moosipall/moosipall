@@ -1,8 +1,5 @@
-<img width="200" height="158" alt="ezgif-6d525cd04290e7b6" src="https://github.com/user-attachments/assets/23d03d01-d3c6-4fbb-8ec9-4b206525bdbc" />
 
-
-
-![](https://komarev.com/ghpvc/?username=moosipall&color=fdefa6)
+![](https://komarev.com/ghpvc/?username=moosipall&color=81399f)
 
 🟢online 🌙offtab  ⛔afk/asleep
 
