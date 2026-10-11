@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=moosipall&color=ebc218)
+![](https://komarev.com/ghpvc/?username=moosipall&color=ebc217)
 
 🟢online 🌙offtab  ⛔afk/asleep
 
